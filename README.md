@@ -1,3 +1,0 @@
-# Anycompany-website
-
-HEY!
